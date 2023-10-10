@@ -3,7 +3,7 @@
 ![D1](https://github.com/Dhruva1096/Dhruva-Dental-Care-Project/assets/147464131/fa416a6a-e0bb-4a87-b028-d78fcb7e5904)
 
 
-![D2](https://github.com/Dhruva1096/Dhruva-Dental-Care-Project/assets/147464131/0069772a-6f5a-4ea0-920c-443667ef2bff)
+![D2](https://github.com/Dhruva1096/Dhruva-Dental-Care-Project/assets/147464131/8aa20f8f-7f3a-450d-87a0-6a86b46972fc)
 
 
 ![D3](https://github.com/Dhruva1096/Dhruva-Dental-Care-Project/assets/147464131/9edf5014-d5ea-429f-980b-7de00ee3ebd3)
